@@ -1,2 +1,0 @@
-# SYSTEM-HAC
-Full aportes 
